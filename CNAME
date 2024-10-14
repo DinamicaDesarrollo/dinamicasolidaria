@@ -1,1 +1,0 @@
-dinamicasolidaria.com
